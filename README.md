@@ -1,4 +1,7 @@
 <p align="center">  
+  ( people that are into both underverse and stranger things PLEASEEE int w me i need someone to see my vision )
+</p>
+<p align="center">  
   I'M BACK IN THE FUCKING BUILDING AGAIN???
 </p>
 <p align="center">  
